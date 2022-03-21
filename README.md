@@ -1,5 +1,3 @@
-Ayo its nocto, the indian kid, the cute kid, the oldfag, theface_022, methmadman882
-
-yes it is i
-
-and im in java fuckin coding hacks!
+Child learning to program and vibing
+member of the cabal
+log4shell on top
