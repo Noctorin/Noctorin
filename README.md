@@ -1,3 +1,5 @@
-Child learning to program and vibing
-member of the cabal
-log4shell on top
+एकमात्र मजबूत मिनीक्राफ्ट खिलाड़ी
+जय हे
+पूर्व या पश्चिम भारत सबसे अच्छा है
+
+-Noc
